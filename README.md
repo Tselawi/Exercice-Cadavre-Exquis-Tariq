@@ -11,3 +11,12 @@
 
 > ![gif](https://media.giphy.com/media/LCssCgwewjFE4/giphy.gif)
 __GROOOOWWWW__
+
+Today's lunch I met my Italian neighboor (50 years old ) at the night shop ( which is owned by our Indian neighbour , yeah we are a great "family"): 
+
+> Nico : You need cola ? 
+> Me : You, your cigaret ? 
+> Nico : drug is bad ... 
+> Me : Yeah... 
+
+=> Intergenerational junkies talk 
