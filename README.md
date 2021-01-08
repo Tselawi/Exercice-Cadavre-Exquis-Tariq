@@ -20,3 +20,5 @@ Today's lunch I met my Italian neighboor (50 years old ) at the night shop ( whi
 > Me : Yeah... 
 
 => Intergenerational junkies talk 
+
+> ![gif](https://media.giphy.com/media/LPgFwCQg4HQBvPihcn/giphy.gif)
