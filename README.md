@@ -5,6 +5,7 @@
 > I hate it when people see me at the supermarket and they are like: "Hey, what are you doing here ?" !
 > And I'm like : "You know .... Hunting Animals ...!"
 
+
 >![gif](https://media3.giphy.com/media/xT5LMtRMpzBxi9SzS0/source.gif "hunt")
  then I will shot the ceiling, ** "BOOM!" **
  and catching the dead rats. That's what I'm aiming for.
@@ -31,3 +32,9 @@ Test Laetitia
 Je vous avais prévenu, vous ne voulez pas savoir ce que je lis. 
  
  mais si si et je vous continué cette si belle histoire alors tout a coup il est ...
+
+
+# In a distant future ...
+
+*Un ouragan s'empare de Los Angeles. Des milliers de requins s'abattent sur la ville et terrorisent la population. Fin, un surfer également propriétaire de bar, accompagné de ses amis Baz et Nova, part à l'aventure afin de sauver son ex-femme April et leur fille Claudia.*
+
